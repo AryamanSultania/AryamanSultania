@@ -21,9 +21,9 @@ Programming?
 
 
 # Hobbies
-Watching documentaries/video essays (Bright Sun Films, Modern Vintage Gamer, fern, and a loooooooot more)
-Listening to music, check my history here! -> last.fm/user/arya_scrobbles
-Playing video games (nothing intensive/competitive)
+* Watching documentaries/video essays (Bright Sun Films, Modern Vintage Gamer, fern, and a loooooooot more)
+* Listening to music, check my history here! -> last.fm/user/arya_scrobbles
+* Playing video games (nothing intensive/competitive)
 
 
 
